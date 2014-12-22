@@ -37,8 +37,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Londini artium & scientiarum scaturigo. Or, Londons fountaine of arts and sciences Exprest in sundry
+
+1. ❧ To the Right Honorable Nicholas Raynton, Lord Maior of this renowned Metropolis LONDON.
+
+1. TO THE RIGHT VVorſhipfull Hugh Perry, and Henry Andrewes▪ the two Sheriffes of the Honourable City London, laſt Elected.
+
 #####Body#####
+
+1. Londons Scaturigo.
+
+    _ So much for the Studies of the Braine.
+
+    _ The ſhow by Water.
+
+    _ The ſecond ſhow by Land.
+
+    _ The third ſhow by Land.
+
+    _ The fourth ſhow by Land.
+
+    _ The fiſt ſhow by Land.
 
 **Types of content**
 
